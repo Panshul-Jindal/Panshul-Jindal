@@ -5,6 +5,7 @@
 - 📫 How to reach me linkedin profile
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+  I had aims of going to ICPC, learning to development in the First Year which I wasn't able to accomplish at all. But I still belive that I will try my best and have faith and depend on Lord Krishna.         ~~~"At last, It's always better late than Never"
 
 <!---
 Panshul-Jindal/Panshul-Jindal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
